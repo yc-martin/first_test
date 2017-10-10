@@ -1,2 +1,2 @@
 # first_test
-www
+哈哈哈哈这是一篇日记
